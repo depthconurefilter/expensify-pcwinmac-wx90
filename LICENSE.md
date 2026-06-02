@@ -1,4 +1,4 @@
-# 
+# Premium Expensify scripts for Mac OS | Professional Expensify scripts for PC Windows. Featuring pdf conversion and collaboration tools — optimized for maximum performance on every platform.
 
 
 
